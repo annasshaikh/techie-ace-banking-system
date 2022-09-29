@@ -11,17 +11,10 @@ GUI: NO
 
 Made By Annas Shaikh
 
-Get the "Product key" or "Source Code" From:
-http://owner.techieace.ml/get/
-
-Report Bugs At:
-http://owner.techieace.ml/Contact-Me/
-
-
 For More Information:
 Open Guide in Extra Folder
 
-Subscribe My Channel: Techie Ace
+Subscribe My Channel: Annas Shaikh ( https://www.youtube.com/channel/UCIKnB-bmkUaTEj5KTCApZQQ )
 
 
 
